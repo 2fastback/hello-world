@@ -1,1 +1,2 @@
 # hello-world
+Of the experience, he said, "It broke my heart. I remember saying to myself, 'I will do anything and everything I possibly can to make sure we never get evicted again.' But what does that mean — what does it mean to be successful? Well, the successful men I admired all built their bodies." This jarring moment from his childhood is an instance in his young life that gave him the motivation to figure out how to break out of the cycle of poverty, and helped spark interest in something that would lead to a very successful career.
